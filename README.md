@@ -13,7 +13,7 @@ Traditional macaroni and cheese is a casserole baked in the oven; however, it ma
 - 2 tablespoons butter
 - ½ cup bread crumbs
 - 1 pinch paprika
-
+! [Image of MacNCheese](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.momontimeout.com%2Fbest-homemade-baked-mac-and-cheese-recipe%2F&psig=AOvVaw3ExQ67T-qBP53zMjCN-xWB&ust=1613925329201000&source=images&cd=vfe&ved=0CAIQjRxqFwoTCLDh9cvy-O4CFQAAAAAdAAAAABAE)
 
 ### PROCEDURE!
 - Step 1 -- Cook macaroni according to the package directions. Drain.
